@@ -1,1 +1,2 @@
-what do you can do,
+html/css 1 week :) 
+database .. maybe
